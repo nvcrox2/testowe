@@ -1,2 +1,2 @@
 # testowe 12345
-kocham madzie
+kocham madzie bajdzioooo mocnooo
